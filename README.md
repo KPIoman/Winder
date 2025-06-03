@@ -37,6 +37,8 @@
 ![24](https://github.com/user-attachments/assets/64656748-eb92-4b38-a315-35bbf6a29369)
 ![22](https://github.com/user-attachments/assets/d1d09ab1-135e-41f0-80e8-d18b076d4911)
 ![23](https://github.com/user-attachments/assets/7e82cc09-9b1e-4403-a791-09e26d5f3349)
+![25](https://github.com/user-attachments/assets/342bd769-98d3-493d-a5de-8e90af44c936)
+![26](https://github.com/user-attachments/assets/30f016b7-173d-46fe-8cb2-36a2afd6e38e)
 
 Ну і відео роботи)
 
